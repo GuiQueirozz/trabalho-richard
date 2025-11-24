@@ -1,0 +1,2 @@
+# trabalho-richard
+Guilherme Queiroz
